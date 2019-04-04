@@ -1,9 +1,9 @@
 
-![](https://media.giphy.com/media/SL8IKF5xrB9CapZ6Pn/giphy.gif)
+![](https://media.giphy.com/media/SL8IKF5xrB9CapZ6Pn/giphy.gif) ![](https://media.giphy.com/media/1ynPNbxys5h9Edb1pc/giphy.gif)
 
-# a ti llamamos, las desterradas hijas de eva,
-# a ti suspiramos, gimiendo y llorando,
-# en este valle de silicio.
+✨🌺🌈🌃 a ti llamamos, las desterradas hijas de eva,
+🏃‍♀️🌻🦴🧡a ti suspiramos, gimiendo y llorando,
+👁🦚🦋🦖 en este valle de silicio.
 
 
 instala la apk en tu móvil android, escanea el target y la virgen estará siempre contigo <3
